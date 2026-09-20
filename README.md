@@ -225,4 +225,4 @@ Clair Obscur: Expedition 33 is provided as a full free version for Windows, with
 Embark on your adventure today! Download **Clair Obscur: Expedition 33** for free and discover the captivating world of RPGs with innovative gameplay and a rich narrative. Don't miss out on this opportunity to enjoy a full version of an exceptional game!
 
 ---
-**Last updated:** 2026-09-20 17:51:07 UTC
+**Last updated:** 2026-09-20 20:07:49 UTC
